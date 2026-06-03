@@ -1,4 +1,4 @@
-# 
+# Turbo pancakeswap trading bot flux de travail pour Mac OS | Exclusif pancakeswap trading bot flux de travail pour PC Windows. Avec indexation de la blockchain et trading de paires — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
